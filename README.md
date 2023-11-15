@@ -1,5 +1,11 @@
 ### Hi there 👋
 
+wudi7mi
+wudi-7mi
+wudi_7mi
+
+[My Bilibili](https://space.bilibili.com/1361231649)
+
 <!--
 **wudi-7mi/wudi-7mi** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
